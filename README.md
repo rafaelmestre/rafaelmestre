@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rafaelmestre
 - 👀 I am interested in entering the technology field in any sector of activity.
-- 🌱 I am currently learning systems analysis and development. 
+- 🌱 I am currently learning systems analysis and development 1/5.
 - 💞️ I am looking to collaborate as an intern.
 - 📫 How to reach me, (11)99125-3773 or by email rafaelmestredosanjos@gmail.com
 - 😄 Pronouns: He/Him
